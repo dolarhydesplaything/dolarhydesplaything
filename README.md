@@ -8,7 +8,7 @@ Who do boys like they're girls, who do girls like they're boys !! :P ❞
 <div id="header" align="center">
 
  
-𐔌   .  ⋮ ⱽⁱⁿⁿʸ ;; ᴿⁱʳᵉ   .ᐟ  ֹ   ₊ ꒱ <img src="https://files.catbox.moe/3z55xw.gif" width="20" heigh="10%">  
+𐔌   .  ⋮ 𝙑𝙞𝙣𝙣𝙮 ;; 𝙍𝙞𝙧𝙚   .ᐟ  ֹ   ₊ ꒱ <img src="https://files.catbox.moe/3z55xw.gif" width="20" heigh="10%">  
 ‎
 
 
