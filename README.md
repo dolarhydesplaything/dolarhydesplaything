@@ -10,12 +10,9 @@ Who do boys like they're girls, who do girls like they're boys !! :P ❞
  
 𐔌   .  ⋮ 𝙑𝙞𝙣𝙣𝙮 ;; 𝙍𝙞𝙧𝙚   .ᐟ  ֹ   ₊ ꒱ <img src="https://files.catbox.moe/3z55xw.gif" width="20" heigh="10%">  
 ‎
+𝙎𝙝𝙚 ;; 𝙃𝙚𝙧 ૮ ˶ᵔ ᵕ ᵔ˶ ა 𝙈𝙞𝙣𝙤𝙧!!
 
-
-I usually am only on pt with my [pook](https://github.com/elqriscandia) , but I sit alone some times . Interacting is totally ok !!
-
-(・∀・)
-
+𐂯 ︵︵ 𝙄𝙨𝙩𝙥-𝙩 𓏵 𝙄𝙣𝙩𝙧𝙤𝙫𝙚𝙧𝙩
 
 
 
