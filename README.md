@@ -12,7 +12,7 @@ Who do boys like they're girls, who do girls like they're boys !! :P ❞
 ‎
 
 
-I usually am only on pt with my [pook](https://github.com/silksunk) , but I sit alone some times . Interacting is totally ok !!
+I usually am only on pt with my [pook](https://github.com/elqriscandia) , but I sit alone some times . Interacting is totally ok !!
 
 (・∀・)
 
