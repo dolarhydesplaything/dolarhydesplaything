@@ -22,4 +22,3 @@ Who do boys like they're girls, who do girls like they're boys !! :P ❞
 <div id="header" align="center">
  <img src="https://files.catbox.moe/vx8hmf.png" width="20%" heigh="3%"> <img src="https://files.catbox.moe/e1tot9.png" width="20%" heigh="3%">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316shfwtdjru2uk3jiihh3jxaa6m&cover_image=true&theme=novatorem&show_offline=false&background_color=ff2c98&interchange=true&bar_color=09f100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
