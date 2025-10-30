@@ -2,7 +2,7 @@
  ❝ Girls who are boys who like boys to be girls
 Who do boys like they're girls, who do girls like they're boys !! :P ❞
 <div align="center">
-<img src="(https://files.catbox.moe/bdpoj9.g)""  width="50%" heigh="3%"
+<img src="https://files.catbox.moe/bdpoj9""  width="50%" heigh="3%"
 
 
 <div id="header" align="center">
