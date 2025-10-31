@@ -1,6 +1,5 @@
 <div id="header" align="center">
- ❝ Girls who are boys who like boys to be girls
-Who do boys like they're girls, who do girls like they're boys !! :P ❞
+ ❝ But, fear is not what you owe me. YOU OWE ME AWE. ❞
 <div align="center">
 <img src="https://files.catbox.moe/w593xk.png"  width="50%" heigh="3%"
 
