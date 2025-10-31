@@ -15,10 +15,10 @@
 
 
 
-;; [Spacehey](https://spacehey.com/fleshylust)  [Shared rentry](https://rentry.co/tootsierolls)  !
+;; [Spacehey](https://spacehey.com/empathyhound)  [Shared rentry](https://rentry.co/tootsierolls)  !
 
 
 <div id="header" align="center">
- <img src="https://files.catbox.moe/vx8hmf.png" width="20%" heigh="3%"> <img src="https://files.catbox.moe/e1tot9.png" width="20%" heigh="3%">
+ <img src="https://files.catbox.moe/386f0z.png" width="20%" heigh="3%"> <img src="https://files.catbox.moe/ms9upd.png" width="20%" heigh="3%">
 
 wip
